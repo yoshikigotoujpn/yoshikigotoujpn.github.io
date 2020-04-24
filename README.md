@@ -1,0 +1,1 @@
+# yoshikigotoujpn.github.io
